@@ -1,3 +1,10 @@
 # start rsapp task1
 
-my name Sasha
+1. Sasha Wawes
+2. -
+3. -
+4. -
+5. -
+6. нет опыт работы
+7. неоконченное высшее
+8. А1

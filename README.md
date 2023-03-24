@@ -1,1 +1,1 @@
-# rsschool-cv
+https://ferrari103.github.io/rsschool-cv/cv
