@@ -1,1 +1,1 @@
-https://ferrari103.github.io/rsschool-cv/
+https://wvves.github.io/rsschool-cv/
